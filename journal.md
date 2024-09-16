@@ -1,9 +1,8 @@
 # September 10, 2024
-la verdad que usted explica muy bien, pero es el hecho de que me cuesta manejar computadoras, muy pocas veces e usado una y es complicado y me marea pero veo que usted me ayuda siempre y eso es bueno y me hace sentir segura.
-entiendo las actividades lo unico que se me complica es usar la computadora.
+The truth is that you explain very well, but it is the fact that it is difficult for me to use computers, I have very rarely used one and it is complicated and it makes me dizzy but I see that you always help me and that is good and makes me feel safe. I understand the activities, the only thing that is complicated for me is using the computer.
 # September 4, 2024
 Light sensor, Tilt sensor, Temperature  Sensor
 The Sphero BOLT has a light sensor that measures light intensity. It helps the robot adjust its speed based on how much light seesmoving slower in low light.
-September 11, 2024
-nop.
+# September 11, 2024
+No.
 
