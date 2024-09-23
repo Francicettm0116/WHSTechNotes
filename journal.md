@@ -5,4 +5,4 @@ Light sensor, Tilt sensor, Temperature  Sensor
 The Sphero BOLT has a light sensor that measures light intensity. It helps the robot adjust its speed based on how much light seesmoving slower in low light.
 # September 11, 2024
 No.
-
+# septmber 16, 2024
