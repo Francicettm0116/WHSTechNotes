@@ -6,3 +6,4 @@ The Sphero BOLT has a light sensor that measures light intensity. It helps the r
 # September 11, 2024
 No.
 # septmber 16, 2024
+This is a free week.
