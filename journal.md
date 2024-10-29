@@ -12,3 +12,10 @@ It's supr important to follow instructions in coding because even tiny mistakes 
 Sorry Ms. Whitby yesterday I forgot to save it. 
 # september 30, 2024
 I think that my day without computer science would be somewhat boring, because practically all day I use my cell phone and other devices where I can use applications, every day I use school applications to be able to do my homework, and on my phone I use applications to watch movies and Instagram, I think you couldn't be in a world without technology because if the world is the same as it is now, the danger would be very great and I would also have to be alone in my house all day.
+# October 10, 2024
+A career that I would like to follow is graphic design, that is, designing logos, titles, posters or advertisements. There are many things that can be done, every day we see things made by people who studied graphic design.
+Graphic designers are in charge of presenting the drawings/designs of the companies or wherever they are hired. I mean, people who need to make a drawing or something like that.
+For graphic design, the most important programming languages ​​and tools are HTML, CSS, and JavaScript as they are fundamental for creating interactive web content, while design software like Adobe Photoshop, Illustrator, InDesign, and potentially a basic understanding of coding languages ​​like Python for more advanced graphic applications are also crucial.
+# October 15, 2024
+Learning to code is crucial for many industries as it improves problem-solving skills. In healthcare, it helps analyze patient data, and in finance, it automatestsks for efficiency. Coding also fosters creativty an collbortion, especialy i education. ultimately,coding equips professionals to aapt and succeed in a tech-driven world.
+# octobre 28, 2024
