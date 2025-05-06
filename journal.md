@@ -31,3 +31,5 @@ Something i learn the last week was that i have to play with my team, don't be "
 
 # April 7,2025
 I think the AI cuold help us in little things, is more easy to ask them for a explanation about a theme, or something we'er curious. I know is'nt the right thing for to do; the most part of the year my teachers never gave me a good explaining of the class, and every day i get home i have to go and do notes by my self, notes that i can understand. i star using AI for help to it explain me all the things.
+
+# May 06, 2025
