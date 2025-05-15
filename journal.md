@@ -34,4 +34,9 @@ I think the AI cuold help us in little things, is more easy to ask them for a ex
 
 # May 06, 2025
 Yes i think 100 men can win using strategies and more than their body, like different resources for conbate, is posible but i'm no saying it can be real, because when someone thinks anbout this they say no, with logistic. In my mind sounds that is posible with differents plans to derrot the gorila.
-Also if the army do it it could be more posible, i don't think a gorila be more strong than a 100 people. l
+Also if the army do it it could be more posible, i don't think a gorila be more strong than a 100 people. 
+
+# May 15, 2025
+I think this trend is a dum challenge for to make others look at you as a cool kid, but really is so bad and boring. Every kid here wanna do it, for "fun" when the reallity is that if you broke your cromebook for this challengen you have to pay more than $25 dollars, i hear that is $300 dollars if you do the challenge. If i have to explain to someone who thinks this is a joke i just going to compared with a latam countrie in those countries is no posible to have a computer for to do works like here, we have to write everithing in our journals and is more work than the work they do here, is more hard to get good grades and all those things. Sometimes i don't comprend how the kids here don't give value to the school stuff. This isn't a good, i didn't hear anything about this challenge on the school.
+
+
